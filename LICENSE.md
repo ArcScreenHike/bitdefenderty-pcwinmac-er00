@@ -1,4 +1,4 @@
-# 
+# Nativo Bitdefender Total Security complementos para Mac OS | Seguro Bitdefender Total Security complementos para PC Windows. Com notas seguras e acesso de emergência — otimizado para máximo desempenho em cada plataforma.
 
 
 
